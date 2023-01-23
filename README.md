@@ -2,6 +2,14 @@ Selamat Datang di Koleksi Source Code Open Source, Karya - karya saya..
 
 Panggil saja saya, Hajir. Alias : Hajirodeon.
 
+--
+
+Channel Youtube : 
+
+https://www.youtube.com/@hajirodeon
+
+
+
 ---
 
 Tersedia juga layanan customisasi berbayar, bagi yang ingin pengembangan lebih lanjut. 
