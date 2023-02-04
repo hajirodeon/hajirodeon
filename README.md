@@ -16,3 +16,14 @@ Tersedia juga layanan customisasi berbayar, bagi yang ingin pengembangan lebih l
 
 Silahkan bisa hubungi via email : hajirodeon@gmail.com atau via WA : 081-829-88-54
 
+---
+
+Atau ingin memberikan donasi atau iklan berbayar di setiap rilis karya saya, 
+
+juga tersedia pilihan : 
+
+A. Donasi 100rb
+
+B. Donasi 300rb
+
+C. Donasi 500rb
