@@ -18,12 +18,23 @@ Silahkan bisa hubungi via email : hajirodeon@gmail.com atau via WA : 081-829-88-
 
 ---
 
-Atau ingin memberikan donasi atau iklan berbayar di setiap rilis karya saya, 
+Atau ingin memberikan donasi atau iklan berbayar di setiap rilis karya saya, juga tersedia pilihan : 
 
-juga tersedia pilihan : 
+A. Donasi Rp.300K
 
-A. Donasi 100rb
+B. Donasi Rp.500K
 
-B. Donasi 300rb
+C. Donasi Rp.1000K
 
-C. Donasi 500rb
+
+Donasi ini akan digunakan untuk operasional pengembangan lanjutan dari update - update rilis karya - karya saya.
+
+Terima kasih dan Sukses Selalu.
+
+
+
+Salam,
+
+
+
+-Agus Muhajir-
