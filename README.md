@@ -9,5 +9,18 @@ Channel Youtube :
 https://www.youtube.com/@hajirodeon
 
 
+Blog SISFOKOL :
+
+http://sisfokol.wordpress.com
+
+
+
+Tokopedia : 
+
+http://tokopedia.com/omahbiasawae
+
+
+
+
 
 ---
