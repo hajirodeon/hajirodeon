@@ -6,6 +6,15 @@ Panggil saja saya, Hajir. Alias : Hajirodeon.
 <img src="belikan_saya_kopi_sisfokol.png">
 
 
+
+--
+
+Video Youtube Sekilas SISFOKOL :
+
+https://www.youtube.com/watch?v=WUnthU_zRYQ&t=62s
+
+
+
 --
 
 Channel Youtube : 
