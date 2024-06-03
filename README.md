@@ -3,8 +3,9 @@ Selamat Datang di Koleksi Source Code Open Source, Karya - karya saya..
 Panggil saja saya, Hajir. Alias : Hajirodeon.
 
 
-<img src="belikan_saya_kopi_sisfokol.png">
 
+--
+PODCAST : #podcastpakrt (fb + youtube)
 
 
 --
