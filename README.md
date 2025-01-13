@@ -6,7 +6,7 @@ Panggil saja saya, Hajir. Alias : Hajirodeon.
 
 --
 
-PODCAST : #podcastpakrt (fb + youtube)
+PODCAST : #podcastpakrt @podcastpakrt (youtube, tiktok)
 
 
 --
