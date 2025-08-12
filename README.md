@@ -4,10 +4,9 @@ Panggil saja saya, Hajir. Alias : Hajirodeon.
 
 ---
 
-Gitlab :
+Bagi yang menyukai dan ingin memberikan dukungan, silahkan bisa memberikan donasi, melalui : 
 
-http://gitlab.com/hajirodeon
-
+https://sociabuzz.com/hajirodeon
 
 
 
